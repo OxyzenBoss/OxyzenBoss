@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OxyzenBoss
 - 👀 I’m interested in .Devolopement Programmes
-- 🌱 I’m currently learning .Coding
+- 🌱 I’m currently working  .Coding
 - 💞️ I’m looking to collaborate on .reverse enginerr
 - 📫 How to reach me ...Telegram @OxyzenBoss 
 - 😄 Pronouns: ...
